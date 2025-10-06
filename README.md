@@ -1,3 +1,5 @@
+![Imagen de WhatsApp 2025-10-06 a las 04 42 51_1af8e876](https://github.com/user-attachments/assets/b03499ea-1799-484d-8e8b-383a6cdedf94)
+
 # 👋 ¡Hola, soy Jheny Chirinos Moreira!
 
 💻 **Técnica en Redes y Bases de Datos** 
