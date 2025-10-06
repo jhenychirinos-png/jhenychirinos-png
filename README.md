@@ -30,7 +30,7 @@ Me gusta aprender nuevas herramientas, automatizar tareas y crear soluciones efi
 ---
 
 ## 🌐 Conecta conmigo
-📧 **Correo:** jheny@example.com  
+📧 **Correo:** jhen12moreira05@gmail.com  
 💼 [LinkedIn](https://linkedin.com/in/jhenychirinos)  
 🐙 [GitHub](https://github.com/jhenychirinos)
 
