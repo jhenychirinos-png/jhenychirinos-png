@@ -1,4 +1,5 @@
-![Imagen de WhatsApp 2025-10-06 a las 04 42 51_1af8e876](https://github.com/user-attachments/assets/b03499ea-1799-484d-8e8b-383a6cdedf94) 
+
+![Imagen de WhatsApp 2025-10-06 a las 05 24 26_86c7ddfb](https://github.com/user-attachments/assets/5ae80b2a-6ea4-4954-b846-3aaf69573951)
 
 # 👋 ¡Hola, soy Jheny Chirinos Moreira!
 
